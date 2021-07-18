@@ -1,7 +1,7 @@
 # Hello!!
 * [**MY DISCORD**](https://discord.com/invite/tzWdHW9cBt)
 
-* [**MY TWITCH**](https://www.twitch.tv/arancino)
+* [**MY TWITCH**](https://www.twitch.tv/arancinoo)
 
 # MOST OF MY SKINS (click the name to download)
 
